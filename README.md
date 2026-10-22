@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jonnyharm. professioal professional. #creativedesign #strategicplanning
-- 👀 please find me online via my website, social media, metaverse, email, and at-
+- 👀  you can learn more aboot moi by visiting my website. And find me at-
 - 🐞 jonnyharman.com
 - 📸 @jonnyharm
 - 🐤 @figa_online
